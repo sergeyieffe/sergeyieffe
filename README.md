@@ -7,5 +7,5 @@
 👍 Support: [add perks](https://ko-fi.com/sergeyieffe)  
 💬 Ask me about: anything actually  
 📫 How to reach me: [send message](https://ieffe.art.blog/contact/)   
-🇮🇱 Heb.: סרגיי דוד יפה
+🇮🇱 Heb.: סרגיי דוד יפה  
 😄 Pronouns: [i-e-fe] -eu   
