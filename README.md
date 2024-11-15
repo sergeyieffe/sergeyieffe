@@ -5,5 +5,5 @@
 🤔 I’m looking for help with: maybe full-stack coding    
 👋 Support: add 👍 for "Uxer" on [Urban dictionary](https://www.urbandictionary.com/define.php?term=uxer)  
 📫 How to reach me: [send message](https://ieffe.art.blog/contact/)   
-🇮🇱 Heb.: סרגיי דוד יפה  (Sergey David Ieffe)  
+🇮🇱 Heb.: סרגיי דוד יפה  ( Sergey David Ieffe )  
 😄 Pronouns: [i-e-fe] -eu   
