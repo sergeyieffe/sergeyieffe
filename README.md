@@ -4,4 +4,4 @@
 🤔 I’m looking for help with: no need  
 🇮🇱 Heb.: סרגיי דוד יפה ( Sergey David Ieffe )  
 😄 Pronouns: [i-e-fe] -eu   
-📫 How to reach me: [send message](https://www.offi.dev/contact)   
+📫 How to reach me: [send message](https://www.sergeyieffe.com/contact)   
