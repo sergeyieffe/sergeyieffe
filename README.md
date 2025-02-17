@@ -1,6 +1,6 @@
 ### Sergey Ieffe @github
 
-🔭 I moved my dev stuff to: [@devyofi](https://github.com/daveyofi) developer alias  
+🔭 I moved my dev stuff to: [@devyofi](https://github.com/devyofi) developer alias  
 🤔 I’m looking for help with: no need  
 🇮🇱 Heb.: סרגיי דוד יפה ( Sergey David Ieffe )  
 😄 Pronouns: [i-e-fe] -eu   
