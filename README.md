@@ -1,6 +1,6 @@
 ### Sergey Ieffe @github
 
-🔭 I've moved my dev stuff to: [@devieffe](https://github.com/devieffe) alias  
+👉 I've moved my dev stuff to: **@devieffe** alias  
 🇮🇱 Heb.: סרגיי דוד יפה ( Sergey David Ieffe )  
-😄 Pronouns: [i-e-fe] -eu   
-📫 How to reach me: [send message](https://www.sergeyieffe.com/contact)   
+😄 Pronounce: [i-e-fe] *eu   
+📫 Contact: [send message](https://www.sergeyieffe.com/contact)   
