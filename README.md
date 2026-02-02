@@ -1,3 +1,3 @@
 👉 Dev stuff at: **[@devieffe](https://github.com/devieffe)** alias  
-😄 Pronounce: [i-e-fe] *eu   
+😄 Pronounce: /iˈjɛfe/ *eu   
 📫 Contact: [send message](https://www.sergeyieffe.com/contact)   
